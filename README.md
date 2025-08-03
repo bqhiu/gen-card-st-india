@@ -1,1 +1,1 @@
-# Gen Stuednt Ấn
+# Gen Student Ấn
